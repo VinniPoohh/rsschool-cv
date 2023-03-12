@@ -1,1 +1,1 @@
-# rsschool-cv
+https://VinniPoohh.github.io/rsschool-cv/
